@@ -2,4 +2,4 @@
 - 👀 I’m interested in everything.
 - 🌱 I’m currently persuing B. Tech. in C.S.E.
 - 💞️ I’m looking to collaborate with everyone.
-- 📫 You can contact me just by pinging me on Instagram (@e.r.r.o.r._303) or just a simple mail (shringianandsharma@gmail.com)
+- 📫 You can contact me just by pinging me on Instagram (@its_anna_1004) or just a simple mail (shringianandsharma@gmail.com)
