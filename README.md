@@ -1,5 +1,6 @@
 - 👋 Hi, I’m Anand Sharma.
-- 👀 I’m interested in everything.
-- 🌱 I’m currently persuing B. Tech. in C.S.E.
-- 💞️ I’m looking to collaborate with everyone.
-- 📫 You can contact me just by pinging me on Instagram (@huihui_anna) or just a simple mail (shringianandsharma@gmail.com)
+- 👀 Aspiring to become a Full Stack Dev.
+- 🌱 I’m a CSE 2023 Graduate.
+- 💞️ I’m looking to collaborate.
+- 📫 You can contact me just by pinging me on Instagram (@huihui_anna) or just a simple mail (shringianandsharma@gmail.com) or my LinkedIn (https://www.linkedin.com/in/anand-sharma-65a1b9207/)
+-  
